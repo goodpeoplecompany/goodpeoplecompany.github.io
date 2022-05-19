@@ -1,1 +1,1 @@
-# goodpeoplecompany.github.io
+# Contact us joy.cafe.game@gmail.com
