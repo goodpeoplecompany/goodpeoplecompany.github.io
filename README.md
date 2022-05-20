@@ -1,1 +1,1 @@
-# Contact us joy.cafe.game@gmail.com
+# Contact us gpeople.games@gmail.com
